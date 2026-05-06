@@ -1,7 +1,8 @@
 # Roofing Contractors in Columbia, SC Homeowner Guide
 
 Seeing leaks or missing shingles? Learn how roofing contractors in Columbia, SC, inspect, repair, and protect your home effectively.
-![Roofing Work](roofing.jpg)
+<img width="720" height="480" alt="roofing contractors in Columbia SC" src="https://github.com/user-attachments/assets/fd582a7b-8683-4f8b-bdd6-5e7cf1142650" />
+
 ## Why Roofing Matters in Columbia, SC
 
 A small leak rarely stays small for long. In Columbia’s climate, heat, humidity, and sudden storms can turn minor roofing issues into expensive repairs if ignored. That is why understanding how roofing contractors in Columbia, SC work is essential for homeowners who want to protect their property and avoid unnecessary costs.
